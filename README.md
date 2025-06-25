@@ -2,7 +2,8 @@
 - 👀 I’m interested in Machine Learning, Computer Networks, and solving real-world problems using technology.<br>
 - 🌱 I’m currently learning Machine Learning and diving deeper into Computer Network fundamentals.<br>
 - 💞️ I’m looking to collaborate on ML projects, networking simulations, or any innovative tech-based solutions.<br>
-- 📫 How to reach me: gauravtech715@gmail.com <br>
+- 📫 How to reach me: E-mail:gauravtech715@gmail.com <br>
+Instagram: @gauravtech714 <br>
 - 😄 Pronouns: He/Him <br>
 - ⚡ Fun fact: I love simplifying complex tech concepts and turning them into cool projects!</b>
 
